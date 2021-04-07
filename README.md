@@ -1,2 +1,0 @@
-# Hari-portfolio
-Hari portfolio
